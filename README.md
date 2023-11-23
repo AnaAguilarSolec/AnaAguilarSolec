@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AnaAguilarSolec
+- 👀 I’m tester in Solec México 
+- 💞️ I’m collaborate in App Solec de México 
+- 📫 Contact me at ana.aguilar@solecmexico.com
