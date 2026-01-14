@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @AnaAguilarSolec
 - 👀 I’m QA tester in Solec México 
 - 💞️ I’m collaborate in App Solec de México 
-- 📫 Contact me at ana.aguilar@solecmexico.com
+- 📫 Contact me at aaguilar@corpelizalde.com.mx
